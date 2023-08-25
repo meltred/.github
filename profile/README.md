@@ -1,1 +1,1 @@
-![Untitled (1)](https://github.com/meltred/.github/assets/82411321/b65d1528-d08f-4839-aacf-e59463cbe73b)
+![Untitled (1) (1)](https://github.com/meltred/.github/assets/82411321/d1ee02fa-d10f-4fa9-afc2-d2b3f21f103c)
